@@ -26,11 +26,11 @@ z zewnętrznym losem
 wyjaśnić nie mogę
 nieoczywistość życia
 to jedno z gorszych
-
 w wieku pożartych wartości
+
 nie ma nic na stałe, żadnych fundamentów
 kiedy lecimy na wietrze ponad nasze
-pojmowanie rzeczywistych treści
+pojmowanie rzeczywistych treści (rzeczywistosci)
 ```
 
 ## Music Video
