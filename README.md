@@ -32,13 +32,22 @@ nie ma nic na stałe, żadnych fundamentów
 kiedy lecimy na wietrze ponad nasze
 pojmowanie rzeczywistych treści (rzeczywistosci)
 
+nie ma nic na stałe
+nie ma nic na stałe
+nie ma niiiiiic
+
 wszystko co znosisz
 wszystko co wiesz
 wszystko co we mnie 
-wszystko co proste
+wszystko jest proste więc 
+tego wyjaśnić nie mogę
 wciąż lecisz za losem
+
 wszystko to treść
-wszystko to oczywiste
+wszystko to (zbyt)
+oczywiste zbyt
+dla ciebie 
+to czerń i biel
 
 ```
 
