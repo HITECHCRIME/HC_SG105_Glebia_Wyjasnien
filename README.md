@@ -31,7 +31,18 @@ w wieku pożartych wartości
 nie ma nic na stałe, żadnych fundamentów
 kiedy lecimy na wietrze ponad nasze
 pojmowanie rzeczywistych treści (rzeczywistosci)
+
+wszystko co znosisz
+wszystko co wiesz
+wszystko co we mnie 
+wszystko co proste
+wciąż lecisz za losem
+wszystko to treść
+wszystko to oczywiste
+
 ```
+
+
 
 ## Music Video
 
